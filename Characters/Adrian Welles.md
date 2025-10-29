@@ -1,1 +1,0 @@
-Prince of the [[London]] [[The Camarilla]]

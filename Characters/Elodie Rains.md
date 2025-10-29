@@ -1,1 +1,0 @@
-Seneschal of Prince [[Adrian Welles]]'s [[London]] [[The Camarilla]]

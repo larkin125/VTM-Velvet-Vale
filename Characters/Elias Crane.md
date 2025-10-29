@@ -1,1 +1,0 @@
-Agent of [[Sir Reginald Harker]]

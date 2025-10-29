@@ -1,1 +1,0 @@
-Haven of [[Lucian Valemont]]

@@ -1,1 +1,0 @@
-Most trusted Ghoul to [[Lucian Valemont]]. See's her as more a motherly  figure than anyting

@@ -1,1 +1,0 @@
-Curator of  **[[The Victoria & Albert Museum]] (V&A)**
